@@ -1,3 +1,4 @@
+# Prologo del universo
 La nada.
 Absoluta.
 Salvo por dos energías primigenias.
